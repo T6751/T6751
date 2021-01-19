@@ -1,4 +1,4 @@
-### :sparkling_heart: L-O-V-E-L-O-V-E :heart:
+### :sparkling_heart: L-O-V-E-L-O-V-E :gift_heart:
 
 <!--
 **T6751/T6751** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
